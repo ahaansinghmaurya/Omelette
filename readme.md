@@ -1,0 +1,1 @@
+An Omelette is a basic dish made by frying beaten eggs in oil or butter.Omelette is eaten across the world(Because it's very Tasty)
